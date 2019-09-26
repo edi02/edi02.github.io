@@ -1,1 +1,1 @@
-# edi02.github.io.
+# edi02.github.io
